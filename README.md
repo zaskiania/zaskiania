@@ -13,5 +13,5 @@ Menjadi pengembang yang bermanfaat dan berkontribusi bagi masyarakat melalui tek
 
 ## 🌐 Hubungi Saya
  - 📧 Email: [ nia.rani019@gmail.com ] 
-- 🚀 Media Sosial: [ Instagram: @nn1a.__ ] 
+- 🚀 Media Sosial: [ @nn1a.__ ] 
 - 💻 GitHub: [ https://github.com/zaskiania ] ( https://github.com/zaskiania )
